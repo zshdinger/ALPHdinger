@@ -1,1 +1,3 @@
-# ALPHdinger
+### ALPHdinger
+
+Dive into a vibrant fusion of creativity and innovation with the ALPHdinger, an exclusive NFT collection of 59 one-of-a-kind pixel artworks. Each piece radiates with dark intensity and electrifying energy, capturing the essence of a humanoid visionary whose genius blurs the lines between brilliance and chaos. This is more than a collectionâ€”it's a celebration of unbridled imagination, inviting you to explore the extraordinary.
